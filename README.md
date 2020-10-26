@@ -1,4 +1,5 @@
-# JieBiFenZhuanJia
+# AoKe Sports
+
 We are dedicated to promoting professional and high quality track and field running equipment, so that people can efficiently buy the sports equipment they are satisfied with in their daily life. It also makes it easy to record the details and scores of live matches, recording every sporting match.
 
 Our app shows a full range of track and field running equipment, including running training equipment, running shoes, running clothes, track and field protection equipment, running bag and other sports equipment. These categories of complete track and field running equipment can meet the user's selection and purchase.
@@ -13,5 +14,5 @@ Our app also has the function of score recording. You can use our app to record 
 
 Endless exercise is a great way to record more than just a match!
 
-If you have any questions, please contact us as follows :zwlf14@163.com
+If you have any questions, please contact us as follows :lixiaohua032@icloud.com
 
