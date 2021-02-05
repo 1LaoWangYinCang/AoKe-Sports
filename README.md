@@ -1,18 +1,18 @@
-# TanQiuTiYuDaShi
+# Hot Digital Info Park
 
-We are dedicated to promoting professional and high quality track and field running equipment, so that people can efficiently buy the sports equipment they are satisfied with in their daily life. It also makes it easy to record the details and scores of live matches, recording every sporting match.
+Hot Digital Info Park enables people to easily and conveniently obtain the hot information of digital currency in their daily life, and at the same time enables people to easily exchange, learn and share these hot information.
 
-Our app shows a full range of track and field running equipment, including running training equipment, running shoes, running clothes, track and field protection equipment, running bag and other sports equipment. These categories of complete track and field running equipment can meet the user's selection and purchase.
+1. Our app contains the most popular news, real-time news, common sense of digital currency, industry information and other information within the circle. Users can put forward their own opinions on these hot information, share news information and collect valuable news.
 
-Our app has classified these track and field running equipment in great detail, which helps users to quickly find the track and field running equipment they want to buy.
+2. Users can also obtain the market information of various digital currencies in real time to better understand the market changes.
 
-Our APP also introduces each product in detail, so that you can fully understand these products, find your favorite track and field running equipment, so that you can purchase and place orders.
+3. Users can express their opinions on digital currency in the topic circle, exchange their ideas with others, understand everyone's opinions on digital currency, and let you go deeper into this circle.
 
-Our app also has the function of commodity collection, which allows you to collect your favorite track and field running equipment into the collection list, so that you can browse and place orders next time.
+4. Our app has the function of booking excellent courses, which makes it easy for you to book digital currency offline courses.
 
-Our app also has the function of score recording. You can use our app to record every track and field race, record the details and results of each race, and also share the result of the race with others for convenience and convenience, as well as record good memories.
+5. Users can also learn to share the basic knowledge of digital currency, learn all kinds of common sense, and better understand the essence of digital currency.
 
-Endless exercise is a great way to record more than just a match!
+Easy access to hot information of digital currency.
 
-If you have any questions, please contact us as follows :lixiaohua032@icloud.com
+If you have any questions, please contact us as follows :deteevbbfi@hotmail.com
 
